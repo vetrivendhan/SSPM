@@ -1,0 +1,2 @@
+# SSPM
+Saiva Siddhanta Perumandram
